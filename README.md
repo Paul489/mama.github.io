@@ -1,1 +1,0 @@
-# mama.github.io
